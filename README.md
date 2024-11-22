@@ -7,5 +7,3 @@
 - 💬 Ask me about Jujutsu Kaisen
 - 📫 How to reach me: Salvalvekens@Gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: GRAAAAH ITS IN MY SKIN HELPPP
--->
